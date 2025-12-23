@@ -1,2 +1,2 @@
 # 1v1DeaLonFF
-fun game and hard game
+fun boy or man
